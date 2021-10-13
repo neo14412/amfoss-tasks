@@ -17,7 +17,7 @@ For me,the tougher the probem,the greater will the joy and satisfaction in findi
  
  d. Do you have any feedback for the selection process ?
  
- Well, it's good so far and the people where mostly nice. In my opinion, the club could be a little bit more less hostile to the new comers.
+ Well, it's good so far and the people where mostly nice. In my opinion, the club could be a little bit less hostile to the new comers.
  Everything else is fine and dandy.
  
  
