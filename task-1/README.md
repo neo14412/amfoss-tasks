@@ -1,1 +1,1 @@
-
+Star all amFOSS repositories
