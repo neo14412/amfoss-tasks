@@ -25,4 +25,8 @@ once I join the club.
 
 ## d. Do you have any feedback for the selection process ?
 
-Well, it's good so far and the people where mostly nice. Everything is just fine and dandy.
+Well, it's good so far and the people where mostly nice. Everything is just fine and dandy.  :smiley:
+  
+  ### Hey before you go check out this meme.
+![](https://i.pinimg.com/564x/dd/5d/55/dd5d55fb81d3b4f386a86247e1439c81.jpg)
+
